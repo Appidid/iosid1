@@ -3,4 +3,4 @@
 私人独享/租用id：https://www.idbao.vip<br/>
 共享id(白)：https://idbao.vip/favorites/mfiosidbh<br/>
 共享id(购)：https://idbao.vip/favorites/yigouiosid<br/>
-外区id教程：https://www.zhihu.com/tardis/landing/m/360/art/101024418<br/>
+外区注册id教程：https://www.zhihu.com/tardis/landing/m/360/art/101024418<br/>
